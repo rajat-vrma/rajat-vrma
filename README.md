@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rajat-vrma
 - 👀 I’m interested in something, that's representable
-- 🌱 I’m currently learning everything
+- 🌱 I’m currently & always learning something new. 
 - 💞️ I’m looking to collaborate on anything (no-restriction)
 - 📫 How to reach me, just a ping away
 
